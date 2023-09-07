@@ -1,4 +1,3 @@
-# Chapter 7: Finding Inspiration in Nature and the World Around You
 
 ## Finding Inspiration in Nature and the World Around You
 

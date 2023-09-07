@@ -1,5 +1,3 @@
-Chapter 3: Developing a Growth Mindset
-======================================
 
 Developing a growth mindset is critical for finding meaning, value, and purpose in life. In this chapter, we will explore strategies for developing a growth mindset, challenging limiting beliefs, embracing change, and overcoming obstacles.
 

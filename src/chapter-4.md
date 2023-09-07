@@ -1,5 +1,3 @@
-Chapter 4: Cultivating Positive Relationships
-=============================================
 
 Human beings are social creatures and our relationships with others have a profound impact on our sense of well-being and fulfillment. In this chapter, we will explore strategies for building healthy relationships, practicing empathy, and setting boundaries. We will also discuss the benefits of cultivating positive relationships for finding meaning, value, and purpose in life.
 

@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Identifying Your Passions and Interests, Setting Goals, and Overcoming Challenges
-===========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Discovering and pursuing your passions and interests is a crucial step towards finding meaning, value, and purpose in life. In this chapter, we will explore effective strategies and techniques for identifying your passions, setting meaningful goals, and overcoming challenges along the way.
 

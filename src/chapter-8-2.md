@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Volunteering, Practicing Philanthropy, and Advocating for Causes
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Volunteering, practicing philanthropy, and advocating for causes are powerful ways to contribute to the betterment of society while finding personal meaning, value, and purpose in life. This chapter explores effective strategies and considerations for engaging in these transformative acts of service and advocacy.
 

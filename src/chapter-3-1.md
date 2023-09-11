@@ -1,5 +1,4 @@
-Chapter 5: Developing a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of finding meaning, value, and purpose in life, developing a growth mindset is essential. This chapter will explore the techniques and strategies for cultivating a growth mindset and unlocking your full potential for personal and professional growth.
 

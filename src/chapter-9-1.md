@@ -1,5 +1,4 @@
-Chapter 6: Embracing Spirituality and Mindfulness
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest for finding meaning, value, and purpose in life, embracing spirituality and mindfulness can provide profound insights and transformative experiences. This chapter explores the significance of spirituality and mindfulness in our lives and how they can enhance our overall well-being and sense of purpose.
 

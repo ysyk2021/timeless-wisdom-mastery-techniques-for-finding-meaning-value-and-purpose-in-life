@@ -1,5 +1,4 @@
-Chapter 10: Finding Inspiration in Nature and the World Around You
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The beauty and wonders of nature have long served as a wellspring of inspiration for individuals seeking meaning, value, and purpose in life. In this chapter, we will explore the profound impact that nature and the world around us can have on our inner growth and how to harness this inspiration to lead a more fulfilling life.
 

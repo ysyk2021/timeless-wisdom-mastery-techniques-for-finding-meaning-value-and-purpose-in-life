@@ -1,5 +1,4 @@
-Chapter 10: Giving Back and Making a Difference
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Giving back and making a difference in the world is a powerful and transformative act that can bring immense meaning, value, and purpose into our lives. This chapter explores the significance of generosity, the various ways we can make a positive impact, and the profound effects it has on both ourselves and others.
 

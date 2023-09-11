@@ -1,5 +1,4 @@
-Chapter 8: Pursuing Your Passions and Interests
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Discovering your passions and interests is a profound journey, but it is equally important to take action and pursue them. In this chapter, we will explore strategies and techniques for embracing your passions wholeheartedly, overcoming obstacles, and cultivating a fulfilling life centered around your true calling.
 

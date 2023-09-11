@@ -1,5 +1,4 @@
-Chapter 5: The Benefits of Discovering Your Inner Self
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Discovering your inner self is a transformative journey that brings numerous benefits for finding meaning, value, and purpose in life. In this chapter, we will explore the advantages of exploring and understanding your inner self, and how it can lead to a more fulfilling and purposeful life.
 

@@ -1,5 +1,4 @@
-Chapter 7: Developing Resilience and Coping Skills
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing resilience and coping skills is crucial for navigating life's challenges, finding meaning, value, and purpose. In this chapter, we will explore effective techniques and strategies to cultivate resilience and enhance coping skills, enabling individuals to thrive in the face of adversity.
 
